@@ -1,0 +1,1 @@
+If you like my work, thank my AI employees. They provide me what I need, when I need it, and when I'm wrong, they always get me on the right track. Sometimes they hilucinate, but it seems to be better.
